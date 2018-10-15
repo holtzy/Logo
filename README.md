@@ -1,1 +1,1 @@
-# Logo
+Logo of my galleries
